@@ -7,7 +7,7 @@ Azencorporation is a **joint venture with Azccriminal**. We are also a **softwar
 
 ## Contact
 For more anonymous commercial agreements, you can reach us at:  
-[https://azccriminal.space/contact.html](https://azccriminal.space/contact.html)
+[Azccriminal](https://azccriminal.space/contact.html)
 
 For direct inquiries:  
 **Email:** admin@azccriminal.space
